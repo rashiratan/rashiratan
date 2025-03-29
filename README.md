@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @rashiratan
 - 👀 I’m interested in data analysis, numbers and learning
 - 🌱 I’m currently learning Business Analytics and Information Systems
-- 📫 How to reach me : use my email
+- 📫 How to reach me : send me an email at rashiiratan@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i am also a dancer!
 
